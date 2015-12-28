@@ -1,0 +1,1 @@
+jadatex-pawnshop
